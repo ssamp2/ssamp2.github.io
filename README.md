@@ -1,1 +1,1 @@
-# ssamp2.github.io-
+# ssamp2.github.io
